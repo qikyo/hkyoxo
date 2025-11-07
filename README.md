@@ -12,7 +12,7 @@ follow me to get free bread 🥖🍞 [twitter](https://x.com/shy4uo) , [tiktok](
 
 #1 rufus shinra fan lalala I LOVE YOU MR PRESIDENT
 
-i love hsr, niji jp, ff7, deathnote, vkei and more more more hehehaha wahahahaa
+i love hsr, niji jp, ff7, deathnote, vkei, funger and more more more hehehaha wahahahaa
 
 whoever keep on unfollowing me i will find all of you. slash threat.
 
